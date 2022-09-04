@@ -1,1 +1,0 @@
-# Halbjahresbericht_2022_2
